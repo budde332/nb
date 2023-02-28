@@ -1,3 +1,4 @@
+**Midfastos III 2023 Jesus är livets bröd**
 I dagens evangelietext, Johannes 6:48-59, hör vi Jesus säga: "Jag är livets bröd. Era fäder åt manna i öknen och dog ändå. Men det bröd som kommer ner från himlen ger den som äter evigt liv." Jesus fortsätter sedan att förklara för folket att han är brödet som kommer ner från himlen och att den som äter av detta bröd kommer att leva för evigt.
 
 För att förstå vad Jesus menar med att han är livets bröd, måste vi titta på vad brödet symboliserar i Bibeln. Brödet är en symbol för det som vi behöver för att överleva och för att vara nöjda. Brödet är också en symbol för gemenskap, för vi delar brödet med andra människor när vi äter tillsammans. Så när Jesus säger att han är livets bröd, säger han att han är det som vi behöver för att överleva, vara nöjda och känna gemenskap med Gud och med andra människor.
@@ -14,6 +15,4 @@ Så låt oss komma till Jesus som livets bröd, låt oss äta av honom och tro p
 
 Låt oss be:
 *Kära Gud, tack för att du har gett oss livets bröd i din Son Jesus Kristus. Hjälp oss att tro på honom och följa honom, så att vi kan få del av hans eviga liv. Fyll oss med din kärlek, frid och glädje, och ge oss styrka och mod att möta livets utmaningar. I Jesu namn ber vi, amen.*
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTQ3MjAxNTU5N119
--->
+#25x
