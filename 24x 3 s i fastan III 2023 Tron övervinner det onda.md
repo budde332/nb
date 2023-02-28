@@ -1,0 +1,13 @@
+I dagens text från Markus ser vi Jesus och hans lärjungar på en plats där de möter en man vars son lider av en ond ande. Mannen ber Jesus om hjälp, eftersom hans lärjungar inte kunde driva ut anden. Jesus botar sedan pojken och förklarar för sina lärjungar att denna typ av onda andar bara kan drivas ut genom bön och fasta.
+
+Denna text påminner oss om den ständiga kampen mellan det goda och det onda. Det onda försöker alltid att ta över och förstöra det goda. Men vi vet att Jesus har segrat över det onda genom sin död och uppståndelse. Genom tron på Jesus Kristus kan vi också övervinna det onda och leva i Guds rike.
+
+Men denna text påminner oss också om att tro inte alltid är lätt. Vi ser i texten att lärjungarna hade svårt att tro att de kunde driva ut den onda anden. De hade redan haft framgångar i att utföra mirakel, men denna gång misslyckades de. Men Jesus uppmanade dem att ha tro och att fasta och be för att kunna driva ut anden. Detta visar oss att tro inte är något som vi bara kan ha när allt går bra. Vi måste också ha tro när vi möter motgångar och utmaningar.
+
+Så vad kan vi lära oss av denna text? För det första, att det onda finns i vår värld och att vi måste stå emot det genom tron på Jesus Kristus. För det andra, att tro inte alltid är lätt, men att vi måste ha tro och be för att kunna övervinna de utmaningar vi står inför. Och för det tredje, att vi inte är ensamma i vår tro. Vi har Jesus och varandra, och tillsammans kan vi stå starka i vår tro och kämpa mot det onda.
+
+Låt oss be:
+*Käre Gud, tack för din styrka och din kärlek. Hjälp oss att ha tro på dig och att stå emot det onda. Ge oss styrka och mod att möta våra utmaningar och att be och fasta för att förstärka vår tro. Tack för Jesus, som har segrat över det onda och som ger oss hopp och tröst. Amen.*
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMzU5Mjc2MzM4LC05ODM0OTY4NzRdfQ==
+-->
