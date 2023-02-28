@@ -1,0 +1,17 @@
+**Jesus och Marias kärlek**
+I dagens text från Johannesevangeliet 12:1-16 får vi höra om en händelse som ägde rum strax före Jesu lidande och död på korset. Jesus hade återvänt till Betania, en by i närheten av Jerusalem, där hans vänner Marta, Maria och Lasarus bodde. Under ett måltid där, tog Maria en flaska med mycket dyrbar nardusolja och smorde Jesu fötter med den, torkade sedan hans fötter med sitt hår. Denna gest visade hennes kärlek och tillbedjan till Jesus.
+
+Men Judas Iskariot, en av Jesu lärjungar, som var ansvarig för gruppens pengar, protesterade mot denna handling och sa att pengarna kunde ha använts för att hjälpa de fattiga istället. Men Jesus sa till honom och de andra lärjungarna att de alltid skulle ha fattiga hos sig, men att han inte skulle vara kvar med dem för alltid.
+
+Några dagar senare, när Jesus red in i Jerusalem på en åsna, jublade folket och viftade med palmblad. De hälsade honom som en kung och ropade "Hosianna! Välsignad är han som kommer i Herrens namn, kungen av Israel!"
+
+Denna händelse visar på flera saker som är relevanta för oss i dagens tid. För det första visar Marias handling på den typ av kärlek och tillbedjan som vi som kristna bör ha till Jesus. Hon använde en dyrbar olja för att visa sin tillbedjan och kärlek till honom. På samma sätt bör vi också använda våra resurser, tid och talang för att visa vår tillbedjan och kärlek till honom.
+
+För det andra visar Jesu svar till Judas oss på vikten av att prioritera vår relation med Jesus. Att ge tid, pengar och resurser till kyrkan och till hjälporganisationer är viktigt, men vår första prioritet borde alltid vara att ha en levande relation med Jesus. Det är genom vår relation med honom som vi blir kallade till att hjälpa och tjäna andra.
+
+För det tredje visar det jublande folket i Jerusalem på att många av dem inte riktigt förstod vem Jesus var. De välkomnade honom som en kung, men de visste inte riktigt vem han var eller vad han skulle göra. På samma sätt kan vi också bli förblindade av våra egna förväntningar och idéer om vem Jesus är och vad han kan göra för oss. Vi måste alltid vara öppna för hans plan och vilja för oss.
+
+Låt oss därför, kära vänner, ta till oss dessa lektioner från dagens text och använda dem för att växa i vår relation med Jesus. Låt oss visa vår kärlek och tillbedjan genom att använda våra resurser på ett sätt som ära honom och tjänar hans rike. Låt oss också prioritera vår relation med honom över allt annat och vara öppna för hans vilja och plan för oss.
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbMjA4OTQ4NzE1MywtMTA1NTc3NzQ0M119
+-->
