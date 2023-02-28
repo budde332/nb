@@ -8,6 +8,4 @@ Så vad kan vi lära oss av denna text? För det första, att det onda finns i v
 
 Låt oss be:
 *Käre Gud, tack för din styrka och din kärlek. Hjälp oss att ha tro på dig och att stå emot det onda. Ge oss styrka och mod att möta våra utmaningar och att be och fasta för att förstärka vår tro. Tack för Jesus, som har segrat över det onda och som ger oss hopp och tröst. Amen.*
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMzU5Mjc2MzM4LC05ODM0OTY4NzRdfQ==
--->
+#24x
