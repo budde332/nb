@@ -1,4 +1,4 @@
-**Lära av Jesu exempel**
+**Skärtorsd III 2023 Lära av Jesu exempel**
 Idag ska vi titta på en händelse som skedde strax före Jesu korsfästelse, som beskrivs i Johannes 13:1-17. Det handlar om när Jesus tvättade sina lärjungars fötter under den sista måltiden de skulle ha tillsammans.
 
 I denna händelse ser vi Jesu kärlek och ödmjukhet i handling. Trots att han var deras herre och mästare, tog han på sig rollen som en tjänare och tvättade sina lärjungars fötter. Han gjorde detta som ett exempel för dem att följa.
@@ -14,8 +14,4 @@ För det andra kan vi lära oss att det är viktigt att ta emot Jesu kärlek och
 Och slutligen kan vi lära oss att Jesu kärlek och omsorg inte bara är för oss själva, utan också för andra. Precis som Jesus tvättade sina lärjungars fötter, kan vi också tjäna och visa kärlek för andra genom att vara ödmjuka och tjänande.
 
 Så låt oss ta till oss denna kraftfulla händelse i våra liv, och låt oss vara villiga att ta emot Jesu kärlek och omsorg, och också visa kärlek och tjäna andra på samma sätt som han gjorde. Amen.
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTEzMjU5MTY0MCw0MzMyMDQ5MjIsLTg3Nz
-cxNjY5MSwtNDY1ODA5ODA5LC0xNjkwMDM3MDYsMTk2NzYyMzE4
-MCwxNjcxMDc0Mjk3LDIyMDM5OTc2M119
--->
+#28
