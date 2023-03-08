@@ -1,3 +1,5 @@
+**Söndagar - koder**
+
 01x 1 advent		21x askonsdagen		41x annan pingst	61x 19 s e tref
 02x 2 advent		22x 1 s i fastan	42x heliga tref		62x 20 s e tref
 03x 3 advent		23x 2 s i fastan	43x 1 s e tref		63x 21 s e tref
