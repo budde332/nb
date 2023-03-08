@@ -1,10 +1,10 @@
-01x 1 adven		21x 21 askonsdagen		41x 41 annan pingst	61x 61 19 s e tref
-02x 2 advent		22x 22 1 s i fastan		42x 42 heliga tref	62x 62 20 s e tref
-03x 3 advent		23x 23 2 s i fastan		43x 43 1 s e tref	63x 63 21 s e tref
-04x 4 advent		24x 24 3 s i fastan		44x 44 2 s e tref	64x 64 22 s e tref
-05x 5 julafton		25x 25 midfastos		45x 45 3 s e tref	65x 65 23 s e tref
-06x 6 juldagen		26x 26 5 s i fastan		46x 46 4 s e tref	66x 66 24 s e tref
-07x 7 annandag jul	27x 27 palmsöndagen		47x 47 apostlad		67x 67 Birgittadag
+01x 1 adven		21x 21 askonsdagen	41x 41 annan pingst	61x 61 19 s e tref
+02x 2 advent		22x 22 1 s i fastan	42x 42 heliga tref	62x 62 20 s e tref
+03x 3 advent		23x 23 2 s i fastan	43x 43 1 s e tref	63x 63 21 s e tref
+04x 4 advent		24x 24 3 s i fastan	44x 44 2 s e tref	64x 64 22 s e tref
+05x 5 julafton		25x 25 midfastos	45x 45 3 s e tref	65x 65 23 s e tref
+06x 6 juldagen		26x 26 5 s i fastan	46x 46 4 s e tref	66x 66 24 s e tref
+07x 7 annandag jul	27x 27 palmsöndagen	47x 47 apostlad		67x 67 Birgittadag
 08x 8 s e jul		28x 28 skärtorsdagen	48x 48 6 s e tref	68x 68 s före doms
 09x 9 nyårsdagen	29x 29 långfredagen		49x 49 kristi förkl	69x 69 domsöndagen
 10x 10 s e nyår		30x 30 påsknatten		50x 50 8 s e tref	70x 70 menlösa barns d
