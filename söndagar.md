@@ -7,13 +7,13 @@
 07x 7 annand jul	27x 27 palmsöndagen	47x 47 apostlad		67x 67 Birgittadag
 08x 8 s e jul		28x 28 skärtorsdag	48x 48 6 s e tref	68x 68 s före doms
 09x 9 nyårsdagen	29x 29 långfredagen	49x 49 kristi förkl	69x 69 domsöndagen
-10x 10 s e nyår		30x 30 påsknatten	50x 50 8 s e tref	70x 70 menlösa barns d
-11x 11 trett jul	31x 31 påskdagen	51x 51 9 s e tref	71x 71 kyndelsmössod
-12x 12 1 s e trett	32x 32 annand påsk	52x 52 10 s e tref	72x 72 jungfru marie beb
-13x 13 2 s e trett	33x 33 2 s i påskt	53x 53 11 s e tref	73x 73 midsommardagen
-14x 14 3 s e trett	34x 34 3 s i påskt	54x 54 12 s e tref	74x 74 Johannes döp dag
-15x 15 4 s e trett	35x 35 4 s i påskt	55x 55 13 s e tref	75x 75 den h mikaels dag
-16x 16 5 s e trett	36x 36 5 s i påskt	56x 56 14 s e tref	76x 76 tacksägelsedagen
-17x 17 6 s e trett	37x 37 bönsöndagen	57x 57 15 s e tref	77x 77 alla helgons dag
-18x 18 septuag		38x 38 kristi himm 	58x 58 16 s e tref	78x 78 allhelgonahelg
-19x 19 sexagesima	39x 39 s f pingst	59x 59 17 s e tref	79x 79 alla själars dag
+10x s e nyår		30x 30 påsknatten	50x 50 8 s e tref	70x 70 menlösa barns d
+11x trett jul	31x 31 påskdagen	51x 51 9 s e tref	71x 71 kyndelsmössod
+12x 1 s e trett	32x 32 annand påsk	52x 52 10 s e tref	72x 72 jungfru marie beb
+13x 2 s e trett	33x 33 2 s i påskt	53x 53 11 s e tref	73x 73 midsommardagen
+14x 3 s e trett	34x 34 3 s i påskt	54x 54 12 s e tref	74x 74 Johannes döp dag
+15x 4 s e trett	35x 35 4 s i påskt	55x 55 13 s e tref	75x 75 den h mikaels dag
+16x 5 s e trett	36x 36 5 s i påskt	56x 56 14 s e tref	76x 76 tacksägelsedagen
+17x 6 s e trett	37x 37 bönsöndagen	57x 57 15 s e tref	77x 77 alla helgons dag
+18x septuag		38x 38 kristi himm 	58x 58 16 s e tref	78x 78 allhelgonahelg
+19x sexagesima	39x 39 s f pingst	59x 59 17 s e tref	79x 79 alla själars dag
