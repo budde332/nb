@@ -1,4 +1,4 @@
-01x 1 adven		21x askonsdagen	41x 41 annan pingst	61x 61 19 s e tref
+01x 1 advent		21x askonsdagen	41x 41 annan pingst	61x 61 19 s e tref
 02x 2 advent	22x 1 s i fastan	42x 42 heliga tref	62x 62 20 s e tref
 03x 3 advent	23x 2 s i fastan	43x 43 1 s e tref	63x 63 21 s e tref
 04x 4 advent	24x 3 s i fastan	44x 44 2 s e tref	64x 64 22 s e tref
