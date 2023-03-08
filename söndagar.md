@@ -15,5 +15,5 @@
 15x 4 s e trett	35x 35 4 s i påskt	55x 55 13 s e tref	75x 75 den h mikaels dag
 16x 5 s e trett	36x 36 5 s i påskt	56x 56 14 s e tref	76x 76 tacksägelsedagen
 17x 6 s e trett	37x 37 bönsöndagen	57x 57 15 s e tref	77x 77 alla helgons dag
-18x septuag		38x 38 kristi himm 	58x 58 16 s e tref	78x 78 allhelgonahelg
+18x septuages	38x 38 kristi himm 	58x 58 16 s e tref	78x 78 allhelgonahelg
 19x sexagesima	39x 39 s f pingst	59x 59 17 s e tref	79x 79 alla själars dag
